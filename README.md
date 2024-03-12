@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AstroTheDevXD
+- 👀 I’m interested in: Python, Lua, java
+- 🌱 I’m currently learning: Lua
+- 💞️ I’m looking to collaborate on: Replit
+- 📫 How to reach me: idk
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Im a roblox dev with a game called fruit tag
